@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoshuaTutorials
+- 👀 I’m interested in Discord.js Lua
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on Discord Twitter Roblox
+- 📫 How to reach me Discord: JoshuaTutorials#2999 Twitter: dumby_z Roblox: DumbyZZZZ
